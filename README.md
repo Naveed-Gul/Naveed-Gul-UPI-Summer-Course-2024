@@ -1,1 +1,1 @@
-# Naveed-Gul-UPI-Summer-Course-2024
+UPI-Summer-Course-2024
